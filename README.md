@@ -4,3 +4,5 @@
 annyeonhaseo!!!
 kumbawa
 Christiaan-ssi!
+konichiwa!!
+
