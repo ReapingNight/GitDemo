@@ -3,7 +3,7 @@
 annyeonhaseo!!!
 kumbawa
 Christiaan-ssi!
-Janey-san
+Janay-ojo
 konichiwa!!
 finally??
 ni haooo!
