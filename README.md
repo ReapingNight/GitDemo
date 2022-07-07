@@ -7,3 +7,5 @@ Christiaan-ssi!
 Janey-ojo
 konichiwa!!
 finally??
+ni haooo!
+hallooo!
